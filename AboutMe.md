@@ -1,0 +1,1 @@
+Hi, my name is AJ Discorsi. I am a Computer Science major with a minor in Mathematics. I am in the first semester of my senior year, and I enjoy coding and going to the gym!
